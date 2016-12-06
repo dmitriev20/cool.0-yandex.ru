@@ -1,0 +1,1 @@
+# cool.0-yandex.ru
